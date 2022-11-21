@@ -1,2 +1,3 @@
 # staidchannel708.github.io
-the website
+dont ask why i did this i
+# staidchannel708.github.io/home
